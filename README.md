@@ -70,3 +70,5 @@ You agree not to misuse the Service. This includes not engaging in any activity 
 If you have any questions about these terms and conditions, please feel free to [contact us](/contact).
 
 By signing up or using the Service, you acknowledge that you have read and understood these terms and conditions and agree to be bound by them.
+
+Play it At own your Risk.
